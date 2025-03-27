@@ -1,1 +1,1 @@
-# algoritimo
+Segunda atividade - Professor Jean
